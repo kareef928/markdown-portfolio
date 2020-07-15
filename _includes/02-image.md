@@ -1,1 +1,1 @@
-![Image of Goku](https://www.google.com/imgres?imgurl=http%3A%2F%2Fmedia.japanpowered.com%2Fimages%2Fgoku.png&imgrefurl=https%3A%2F%2Fwww.japanpowered.com%2Fanime-articles%2Fgoku-as-a-role-model&tbnid=SHKs7Q9UNxbd3M&vet=12ahUKEwjr-M-gkdDqAhVwhuAKHelGCNMQMygPegUIARCAAg..i&docid=-yFxVOrRAOJhRM&w=761&h=800&q=goku&ved=2ahUKEwjr-M-gkdDqAhVwhuAKHelGCNMQMygPegUIARCAAg.png)
+![Image of Goku](https://wallpaperplay.com/walls/full/0/0/6/299813.jpg)
