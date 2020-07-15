@@ -1,1 +1,1 @@
-![Image of Goku](/Users/kareefullah/Desktop/collage\ pics/Kid\ Goku.jpg )
+![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
